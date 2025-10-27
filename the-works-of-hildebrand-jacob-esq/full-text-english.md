@@ -14,7 +14,7 @@
 
 ALL Hail! O awful, sage _Divinity!_  
 _Goddess_ of _Silence!_ hail! eternal _Pow'r_,  
-Who knowest how the Universe was form'd,  
+Who knowest how the _Universe_ was form'd,  
 How _Nature_ first began! for thou wast then,  
 And startedst at the dread, creating _Voice_,  
 E'en then thou wast, and still thou wilt endure,  
