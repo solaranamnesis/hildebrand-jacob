@@ -2,6 +2,12 @@
 
 ---
 
+...
+
+## [Hymn to the Goddess _of Silence_.]()
+
+...
+
 ---
 
 ## Hymn to the Goddess _of Silence_.
@@ -65,47 +71,22 @@ To lash the hollow, far-resounding Shoar.
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Where'er thou'rt found, great _Pow'r_, vouchsafe th Aid!  
 Deign visit our Retreat! the sacred _Muse_,  
 The sacred _Muse_ with me your Help implores;  
-Of N. ar, 999; Sports by turne we man to. — 
-Of mighty Heroes, and of mighty Love... 9 
+Of _War_, and _Sports_ by turns we mean to sing,  
+Of mighty _Heroes_, and of mighty _Love_.  
+In vain the _God_ of _Numbers_ doth inspire,  
+In vain _Apollo_'s Sons attempt to soar  
+Without thy Influence. Come, Goddess, come!  
+Bring with thee _Quiet_, _Contemplation_,  
+Poetic _Visions_ bright, and _Dreams_ sublime,  
+Such as of old great _Homer_ did inspire,  
+Such as the Gods above themselves may dream,  
+Still Dreams indeed; but Dreams of mighty _Jove_.  
 
-In vain the God of Numbers doth inſpire, 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Thus well attended, bless our _Solitude!_  
+There nothing shall suspend thy gentle Reign,  
+Save the low Murmur of a distant Stream,  
+Except by chance sweet _Philomel_ complains,  
+Or _Cloë_ tunes her melting Voice, and Lyre.
 
-In vain Apollo's. 8 Sons attempt to 0 
-Without thy Influence. Come, Goddeſs, come! 
+...
 
-
-& & SS 4 a — 
-
-
-Bring with thee Luiet, Contemplation, AD: 
-Poetic ſions bright, and Dream ſublime, 
-Such as of old great Homer did inſpire, | 
-Such as the Gods above themſelves may dream, f 
-Still Dreams indeed; but Dreams of mighty Jvve. 
-ANY 5 WF PP, 
-
-
-I Wn < Ry » 4 nat 
-, 4 9 — v a 12 ST ö * 1 1 1 : 1 44 a 
-1 m —_— _ if + ». a6 po © Pe. — - Wh" — — 8 
-
-1 422 - 2 8 ; \ * " 
-
-Sf 2 EY n 40 3 . 
-
-an * 
-
-Iz 
-— 
-
-
-EP 3 
-
-Thus well attended, bleſs our Solitude ! 
-There nothing ſhall ſuſpend thy gentle Reign, 
-Save the low Murmur of a diſtant Stream, 
-Except by chance ſweet Plylomel complains, 
-Or Cue tunes her melting Voice, and Lyre. 
-
- ...
- 
