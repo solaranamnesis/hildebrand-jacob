@@ -41,58 +41,30 @@ How awful yet o'er crouded _Theatres_
 Dost thou preside, when _Johnson's_ manly _Scene_,  
 _Shakespear_, or moving _Otway_ warms the _Stage?_
 
-O thb propitious to the tunefal Quire!” Fe 
-7 Whereer thou doſt reſide, receive my Vows! 1 2 
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;O thou, propitious to the tuneful _Quire!_  
+Where'er thou dost reside, receive my Vows!  
+Whether in Deserts wild, or Woods remote,  
+Where yet no Path is made, nor Echoes rude  
+Frighten the _Dryads_ from their lov'd Retreat;  
+Or whether, lonely, thou delight'st to stray  
+At _Noontide_ on the solitary Plain,  
+While Flocks, and Herds, and all the rural Rout  
+Of _Nymphs_, and _Swains_ are hid in cooling Shades;  
+Or is the _Gothic_ Temple's gloomy Isle,  
+The dusky Cloister, or dark Cyprus Grove  
+Thy lov'd Abode? Or dost thou choose to haunt  
+(Hard by old _Memphis_, and the fabled _Nile_)  
+The empty Vaults of lofty _Pyramids_,  
+Vain Monuments of ancient _Ægypt_'s Pride?  
+Or, haply, farther from the World remov'd,  
+On _Pindus'_ Top, or _Atlas'_ hoary Crown,  
+Or some vast Promontory thou dost stand,  
+Whence scarce the angry _Ocean_ is o'erheard,  
+To lash the hollow, far-resounding Shoar.
 
-
-Whether i in Deſerts wild; or Woods remote! Moos > wo — 
-
-
-Where yet no Path is made, nor Echoes rude 5 * 
-/ Frighter the Brpuar fromtheir lov Retreat; * I 
-Or whether, lonely; tliou delight' e Py 
-| At Noontide on The tar) Platß fs Hil 
-While Flocks, and Herdsl And all the at Raye fil 
-Of 'Ny#phr, and gun ate hid ibn S0 des 5j 
-Or is the Gothic Temple's 5 "gloomy Me l 
-The dusky*Cloilter;ior dark Cyprus Grove 
-
-
-Thy low'd Abode?i Or doſt thou ehooſe to Balint 
-
-
-| (Hard:-by-ofd Memphis, and' the fabled Nay” 28 008 
-The empty Vaults ef lofty Pyramids, 
-
-
-wel R Vain 
-
-
-PY --———— — 3 — = 
-
-
-[6] 
-Vain Monuments. of ancient #gypr's Pride? 
-Or, haply, farther. from the World remov d, 
-On Pindas Top, or Atlas hoary Crown, 
-Or ſome vaſt Promontory thou doſt ſtand, | 
-Whence ſcarce the angry Ocean is o'erheard, . 
-To laſh the hollow, far-reſounding Shoar. 
-
-
-— thou'rt found, great Pow'r, vouchfafe th 
-
-
-2 
-
-
-Dei gn viſt our Retreat! the wa, Muſe, 5 
-The ſacred Muſe with me your Help implores; 5 
-
-
-WIZ 4 
-
-
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Where'er thou'rt found, great _Pow'r_, vouchsafe th Aid!  
+Deign visit our Retreat! the sacred _Muse_,  
+The sacred _Muse_ with me your Help implores;  
 Of N. ar, 999; Sports by turne we man to. — 
 Of mighty Heroes, and of mighty Love... 9 
 
