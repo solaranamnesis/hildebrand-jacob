@@ -39,7 +39,7 @@ Thy kindly Aid, while _Phœbus_ ever young,
 Immortal _Phœbus_ wakes his golden Lyre;  
 Thy tender Ear can brook the heav'nly Sound:  
 Thou'rt Friend to _Music_, and harmonious _Verse_;  
-For tho' thou shun'st the noisy, laud _Resorts_  
+For tho' thou shun'st the noisy, loud _Resorts_  
 Of restless Man, resounding _Palaces_,  
 The clam'rous _Camp_, the dire, tumultuous _Field_,  
 And oft at the throng'd _Bar_ art call'd in vain;  
