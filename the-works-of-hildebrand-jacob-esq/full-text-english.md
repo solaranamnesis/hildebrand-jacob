@@ -68,7 +68,7 @@ Or some vast Promontory thou dost stand,
 Whence scarce the angry _Ocean_ is o'erheard,  
 To lash the hollow, far-resounding Shoar.
 
-&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Where'er thou'rt found, great _Pow'r_, vouchsafe th Aid!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Where'er thou'rt found, great _Pow'r_, vouchsafe thy Aid!  
 Deign visit our Retreat! the sacred _Muse_,  
 The sacred _Muse_ with me your Help implores;  
 Of _War_, and _Sports_ by turns we mean to sing,  
